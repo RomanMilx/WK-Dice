@@ -1,0 +1,2 @@
+# WK-Dice
+TERMS OF SERVICE
